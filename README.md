@@ -1,1 +1,0 @@
-# AcadAndroidS2A4
